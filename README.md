@@ -1,1 +1,1 @@
-# Репозиторий Сергеев Александр
+# Repository Sergeev Alexandr.
